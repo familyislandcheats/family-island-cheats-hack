@@ -1,4 +1,5 @@
 To access the Family Island Cheats go here -> http://emma-pearl.weebly.com
+It's the easiest way to Hack Family Island you'll ever find.
 
 What do these cheats for Family Island do?
 
@@ -21,3 +22,11 @@ Then you can specify how many rubies you'd like to generate.
 Have you tested it?
 
 I've tested it extensively to ensure that it works. I haven't encountered any issues.
+
+Can I get banned for using this Hack for Family Island?
+
+No, hacking family island through the use of these cheats is safe. There's several layers of protection in place to protect all the accounts that use it.
+
+How many rubies can I generate?
+
+There's no limit to how many free rubies you can generate through the use of these Family Island Cheats
